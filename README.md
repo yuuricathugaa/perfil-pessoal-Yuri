@@ -1,1 +1,0 @@
-# perfil-pessoal-Yuri
